@@ -1,2 +1,2 @@
 
-![图片_20230904092322](https://github.com/stellarhk/ChatGPT4.0-Web-Stellar/assets/128345288/629e0815-3028-4844-bdc7-b6f9339efcd2)
+![图片_20230919004915](https://github.com/stellarhk/ChatGPT4.0-Web-Stellar/assets/128345288/9d7d7be7-acc6-462a-ae0c-5f7a4fb81682)
