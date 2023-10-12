@@ -1,1 +1,1 @@
-![IMG_5663(20231005-141203)](https://github.com/stellarhk/ChatGPT4.0-Web-Stellar/assets/128345288/e938f2fc-9404-4ec5-add4-d2d4f8bb1f13)
+![photo_2023-10-12_17-43-00](https://github.com/stellarhk/chatgpt/assets/128345288/2fb6bf88-4056-435a-81df-4534bcffeb4a)
