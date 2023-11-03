@@ -1,2 +1,1 @@
-![2023-10-25 03 37 19](https://github.com/stellarhk/chatgpt-proxy/assets/128345288/6d5b99bb-e132-4805-88d7-89b7be8fcd8b)
-
+![图片_20231104001545](https://github.com/stellarhk/ChatGPT4.0-Web-Stellar/assets/128345288/6fde1148-b33c-4997-bb01-28e2dbf8f17f)
