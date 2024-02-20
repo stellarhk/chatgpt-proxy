@@ -1,1 +1,1 @@
-![微信图片_20240210015944](https://github.com/stellarhk/chatgpt-s2/assets/128345288/ba87d9f4-cb38-4d94-9555-5e02d1e07a9e)
+![微信图片_20240220143129](https://github.com/stellarhk/chatgpt/assets/128345288/be85126e-2dc2-4250-8922-8de39729e25d)
